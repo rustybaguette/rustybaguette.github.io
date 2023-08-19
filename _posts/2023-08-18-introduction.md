@@ -6,8 +6,6 @@ tags: []
 pin: true
 ---
 
-## I used to want to change the world
-
 Since I was in middle school my greatest objective was to change the world.
 Don't get me wrong, I didn't want to be a superhero who randomly save people and get nothing in retrun, my objective was different.
 I wished to do so big of a discovery that people would remember me for the next centuries, that was my idea of overcoming death and living forever, pretty selfish huh?

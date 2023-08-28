@@ -2,7 +2,7 @@
 title: First real workout
 date: 2023-08-21 18:37:36 +0200
 categories: [journal, evening]
-tags: [workout]
+tags: [journal, workout]
 pin: false
 ---
 

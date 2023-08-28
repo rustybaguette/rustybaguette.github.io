@@ -2,7 +2,7 @@
 title: I used to want to change the world
 date: 2023-08-18 06:45:24 +0200
 categories: [journal, morning]
-tags: []
+tags: [journal]
 pin: true
 ---
 

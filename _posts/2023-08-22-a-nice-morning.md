@@ -2,10 +2,10 @@
 title: A nice morning regardless the sleep
 date: 2023-08-22 07:16:35 +0200
 categories: [journal, morning]
-tags: []
+tags: [journal]
 pin: false
 ---
-Regardless the fact that I slept just 4:something hours I don't feel as tired as the previous days, I will sleep some more tho since I'm aware that sleeping just 4h is nowere near enough.
+Regardless the fact that I slept just 4:something hours I don't feel as tired as the previous days, I will sleep some more tho since I'm aware that sleeping just 4h is nowhere near enough.
 
 Today's workout will probably be much lighter than the previous days (probably the same but less reps), since I still have muscle pain existing.
 

@@ -25,6 +25,6 @@ I can't stand anymore crying over myself, I'm changing all I can.
 I'm changing my routines, for circumstances I got to change the place I'm living for a couple of years, I changed all my on-line identities which I want to be as irrelevant and fragmented as possible, since time spent on-line doing nothing but passive consumption of content was one of the addictions that mostly want to eradicate from my life.
 
 I will keep writing posts and publish them, yet again, not because I want to help you or any other person, but because starting with some strong statement will hopefully keep myself on tracks.
-Also, if I only try to think about giving up, looking back at myself would just make me angry and unembarrassed.
+Also, if I only try to think about giving up, looking back at myself would just make me angry and embarrassed.
 
 I know you can achieve nothing without someone to push you, well, I shall be that someone, So good luck my future self, you have just been put in deep shit and the only way to get out of this is proving yourself.

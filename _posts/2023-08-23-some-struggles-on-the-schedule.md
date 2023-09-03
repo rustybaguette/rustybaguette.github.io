@@ -15,7 +15,7 @@ First of all I should admit cold shower are amazing in the morning, when you are
 Regarding my morning routine I managed to follow it yesterday since I went to sleep at a reasonable time (not like today) and that felt pretty nice.
 
 I also need to apology to both my past and future self for not being able to workout today, had some errands to do, started preparing the luggage and misunderstood the date me and my friends were going to see Oppenheimer, so I totally skipped today's workout, if not for the morning's and evening's bike rides.
-I didn't want a "day-off" for the first time because the objective was tol put me in the right mindset to keep a consistent schedule of whatever (workout in this particular case).
+I didn't want a "day-off" for the first time because the objective was to put me in the right mindset to keep a consistent schedule of whatever (workout in this particular case).
 
 I **MUST** Do both morning pre-workout and afternoon workout tomorrow, to get back on tracks, at least.
 
